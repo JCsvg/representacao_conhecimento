@@ -1,0 +1,1 @@
+#### Trab de IA --> Representações do Conhecimento
